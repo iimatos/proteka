@@ -1,0 +1,1 @@
+# Site para captura - Desktop e Mobile
